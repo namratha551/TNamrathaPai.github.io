@@ -1,1 +1,1 @@
-# TNamrathaPai.github.io
+# namrathapai.TNamrathaPai.github.io
